@@ -3,8 +3,7 @@
   <img src="https://github.com/user-attachments/assets/41f4ab44-e9ce-4c8e-8d35-7d494ba243d1" alt="tumblr_11709e441cf5bb5e67b38dd67dde5127_cd148d03_250" />
   <img src="https://github.com/user-attachments/assets/905d9577-0034-4ae8-b293-4ae3b5a7d9c0" alt="tumblr_044df78dfff8a01f9f9ffecdca0f8559_4b7ac4f1_250" />
   <img src="https://github.com/user-attachments/assets/ca542804-8cc0-45ff-aecb-f2535f7637bf" alt="tumblr_a7d1902ea13f05592a66209065dca306_e881846e_100" />
-  <img src="https://github.com/user-attachments/assets/c477261d-f680-4dc9-94de-f63caafdfdbe" alt="tumblr_9cb09658db2d08bf31e53e01744a7921_cedcd51c_100" />
-  <img src="https://github.com/user-attachments/assets/eb9dde2f-cea9-43ed-914d-0a96509b41c8" alt="tumblr_82dc9b3daa0f8af0ad899695520759c8_f620082e_100" />
+
 </div>
 
 
