@@ -16,7 +16,7 @@
   <img src="https://github.com/user-attachments/assets/5d8e8140-daa0-46fa-8fde-6b5ddcd80ac9" alt="44fde8e7" />
   <img src="https://github.com/user-attachments/assets/fc6eac0b-a7cd-4cbb-bf50-ec47fe0b954a" alt="52296f43" />
   <img src="https://github.com/user-attachments/assets/a8fc27e5-5cc0-4b1f-9e2e-e4d181671dc4" alt="d8c367c0" />
-  <img src="https://github.com/user-attachments/assets/b6e49afa-f527-406d-8c84-f7a9b63fdcdd" alt="5472cdea" />
+  <img src="https://y2k.neocities.org/blinkiez/newbatch/zVFdvH5.gif" alt="5472cdea" />
   <img src="https://github.com/user-attachments/assets/690c6e7a-0d6b-4bca-956c-20bd139a7e82" alt="03444e44" />
   <img src="https://github.com/user-attachments/assets/bce610f5-ac05-49ad-98cf-c112ed734f84" alt="d3f300bf" />
   <img src="https://github.com/user-attachments/assets/bfeb24b9-93f6-4cda-b546-25a51ed5b949" alt="a2ab3737" />
