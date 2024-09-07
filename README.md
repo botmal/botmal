@@ -132,3 +132,7 @@
 ![c9f0442c](https://github.com/user-attachments/assets/f7b73d80-7eef-48ab-9e3b-e1df59f8e5d6)
 ![91bc1c67](https://github.com/user-attachments/assets/e08b5113-aeab-4f48-8e60-bedb71cbcdd7)
 ![b683d51c](https://github.com/user-attachments/assets/712051b6-4bf3-41da-8c05-38f697b687c2)
+![pp (1)](https://github.com/user-attachments/assets/1a453c9c-5887-4d3a-bb00-2ca1a3ebca1c)
+![pretty_good_at_bad_decisions_stamp_by_ceiestials-d9qwvu6](https://github.com/user-attachments/assets/6d465293-7522-4028-bca8-de54a898ba13)
+![tumblr_pqr0kiKHmP1vafdqu_540](https://github.com/user-attachments/assets/012149e8-fe37-4107-b3e6-50fa26d8b9de)
+![tumblr_pi7cobtTob1xy0eh3o2_100](https://github.com/user-attachments/assets/7d0714e9-ae4e-44d8-888d-5beddd7cedc8)
