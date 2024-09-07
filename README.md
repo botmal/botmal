@@ -73,10 +73,6 @@
   <img src="https://github.com/user-attachments/assets/b2e30a80-6277-4e94-8e86-baf7e862bec9" alt="e2755b54" />
   <img src="https://github.com/user-attachments/assets/82f3d941-ef33-456e-8a91-894fb01b59b5" alt="3761df29" />
   <img src="https://github.com/user-attachments/assets/56fcb4c9-e21d-4d2a-a72d-72f944c82416" alt="a117b32d" />
-  <img src="https://github.com/user-attachments/assets/ccf716da-827a-43cd-9f
-
-				
-
 
 
 ![d](https://64.media.tumblr.com/aa96bedcef4a84b99401eebe65774b0b/b280a8b8fa1032f5-0a/s100x200/78cf395aaee24bd9f53f2e4e066acf6b171231ab.gif)
