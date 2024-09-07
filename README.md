@@ -75,6 +75,8 @@
   <img src="https://github.com/user-attachments/assets/56fcb4c9-e21d-4d2a-a72d-72f944c82416" alt="a117b32d" />
   <img src="https://y2k.neocities.org/blinkiez/newbatch/sweetdevil.gif" alt="a117b32d" />
   <img src="https://y2k.neocities.org/blinkiez/tumblr_p27pzqm2mk1tymkppo6_250.gif" alt="a117b32d" />
+  <img src="https://y2k.neocities.org/blinkiez/blink47.gif" alt="a117b32d" />
+
 
 
 
