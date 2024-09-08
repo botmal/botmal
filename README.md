@@ -136,3 +136,12 @@
 ![pretty_good_at_bad_decisions_stamp_by_ceiestials-d9qwvu6](https://github.com/user-attachments/assets/6d465293-7522-4028-bca8-de54a898ba13)
 ![tumblr_pqr0kiKHmP1vafdqu_540](https://github.com/user-attachments/assets/012149e8-fe37-4107-b3e6-50fa26d8b9de)
 ![tumblr_pi7cobtTob1xy0eh3o2_100](https://github.com/user-attachments/assets/7d0714e9-ae4e-44d8-888d-5beddd7cedc8)
+![s](https://64.media.tumblr.com/d0005377ed5608cea9ea204b1a1aed65/7c2dbe6a97c7f0e4-53/s100x200/950f443b15d14aa6a42b9d173f354dac43684c5d.gifv)
+![s](https://64.media.tumblr.com/930afad5ce80d17be53c5214e83b0970/492fa421672fd88c-b4/s100x200/b215079b78f38147430f9bffb6e5646ce140e481.pnj)
+![s](https://64.media.tumblr.com/960236dd81179fa89eec878b4aaa07b8/5f2c388c1d3b538b-84/s100x200/798601c172c8748e8dcf3b80ca39a0f61357bfe8.gifv)
+![d](https://64.media.tumblr.com/584c078394b2ccb1c4e1509835187774/3bf62ad8d20f8b2a-f7/s100x200/d3d1f3499158355aa827f4bdca64623541349562.gifv)
+![s](https://64.media.tumblr.com/7d435451d965e0f0a536a8cb70657117/21317507f7352712-96/s100x200/db5e13506714741dfc0f06f3aa1f0d2c6b863026.webp)
+![s](https://64.media.tumblr.com/06e41a82c83a209a51ef9491eeb5120f/0455fac414385656-42/s100x200/4fdd0bbe8ba56b212579d08f0882d8c180f8d515.gifv)
+![d](https://64.media.tumblr.com/c63e49fca2a4d0543cf24eb961a9e5dd/f6aa4a68b0575f05-d2/s100x200/a2cfd17051a2951700cd01ffd63c67ee3e052ff2.gifv)
+![d](https://64.media.tumblr.com/8ef6d8e6c69c6965ac635fe9293d7d64/6f072ea04e7b6c72-6f/s100x200/1ef325c98fdc63cf9f80909a2a83349ebfa62977.gifv)
+
