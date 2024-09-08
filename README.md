@@ -18,7 +18,7 @@
   <img src="https://github.com/user-attachments/assets/a8fc27e5-5cc0-4b1f-9e2e-e4d181671dc4" alt="d8c367c0" />
   <img src="https://y2k.neocities.org/blinkiez/newbatch/zVFdvH5.gif" alt="5472cdea" />
   <img src="https://github.com/user-attachments/assets/690c6e7a-0d6b-4bca-956c-20bd139a7e82" alt="03444e44" />
-  <img src="https://github.com/user-attachments/assets/bce610f5-ac05-49ad-98cf-c112ed734f84" alt="d3f300bf" />
+  <img src="https://cdn.discordapp.com/attachments/740579213123256401/1282303575703425035/I_LUV_THE_INERNET.gif?ex=66deddc4&is=66dd8c44&hm=19b4002b376404bf950d69112a6a17091247a420085266621054e7ffa6fb044b&" alt="d3f300bf" />
   <img src="https://github.com/user-attachments/assets/bfeb24b9-93f6-4cda-b546-25a51ed5b949" alt="a2ab3737" />
   <img src="https://github.com/user-attachments/assets/ed913d56-4afe-4968-83e5-45e20c492746" alt="d3f300bf" />
   <img src="https://github.com/user-attachments/assets/79364f52-fae6-4021-8448-90eaf0a5d7bf" alt="tumblr_7b0f0d5cf00fbbd984795e8b4cd7cd41_3581ff20_250" />
