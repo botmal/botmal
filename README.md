@@ -3,6 +3,7 @@
   <img src="https://github.com/user-attachments/assets/41f4ab44-e9ce-4c8e-8d35-7d494ba243d1" alt="tumblr_11709e441cf5bb5e67b38dd67dde5127_cd148d03_250" />
   <img src="https://github.com/user-attachments/assets/905d9577-0034-4ae8-b293-4ae3b5a7d9c0" alt="tumblr_044df78dfff8a01f9f9ffecdca0f8559_4b7ac4f1_250" />
   <img src="https://github.com/user-attachments/assets/ca542804-8cc0-45ff-aecb-f2535f7637bf" alt="tumblr_a7d1902ea13f05592a66209065dca306_e881846e_100" />
+  
 
 </div>
 
@@ -77,6 +78,7 @@
   <img src="https://y2k.neocities.org/blinkiez/tumblr_p27pzqm2mk1tymkppo6_250.gif" alt="a117b32d" />
   <img src="https://y2k.neocities.org/blinkiez/blink47.gif" alt="a117b32d" />
   <img src="https://64.media.tumblr.com/5b5a85b6b5954d17ee4be12478285da0/575c3f441f016121-e8/s250x400/3464b4fbfe83f8b2dfd0694c82ce4f729162e170.gifv" />
+  <img src="https://64.media.tumblr.com/3e3dfa9b95782ea39fc408daababc6fc/2d5355ab08b02724-2f/s250x400/0f976ce82e02f085568c8388d5367ed13f3b5112.gifv" />
 
 
 
