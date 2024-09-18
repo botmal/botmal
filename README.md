@@ -76,7 +76,8 @@
   <img src="https://y2k.neocities.org/blinkiez/newbatch/sweetdevil.gif" alt="a117b32d" />
   <img src="https://y2k.neocities.org/blinkiez/tumblr_p27pzqm2mk1tymkppo6_250.gif" alt="a117b32d" />
   <img src="https://y2k.neocities.org/blinkiez/blink47.gif" alt="a117b32d" />
-
+  <img src="https://64.media.tumblr.com/5b5a85b6b5954d17ee4be12478285da0/575c3f441f016121-e8/s250x400/3464b4fbfe83f8b2dfd0694c82ce4f729162e170.gifv" />
+  <img src="https://64.media.tumblr.com/71342a57ac6305510b2dac916b563579/7490dcdd54946e7a-ab/s250x400/72a431ecefc4475eb7814cc8cad9b22569460c7c.gifv" />
 
 
 
