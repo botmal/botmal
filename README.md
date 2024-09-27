@@ -168,3 +168,15 @@
 ![d](https://64.media.tumblr.com/83848da97269a2acd96aa1a476590b8d/1031b8e7620696a7-9c/s100x200/e8be09555b02093cb0ddbaa3bf5d03a73f7f32ee.pnj)
 ![d](https://64.media.tumblr.com/72edd9190ea261622a17ddbd6dc67cac/79a69295f321c8f9-fc/s100x200/7fe5f7835f6af59664279f60dac273d178aa0343.pnj)
 ![d](https://64.media.tumblr.com/846cc246217649ce772c8be3d9239c99/6d78bc7631b17625-fa/s100x200/065c7b13b38340bdee1c3fad6846edbe8ae07d98.pnj)
+
+
+
+
+
+
+
+
+
+
+
+btw if u know about that one callout almost everything on there doesnt involve me or my 2 other friends because we're not even apart of that friendgroup sooo thx bye!
