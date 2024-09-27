@@ -179,4 +179,4 @@
 
 
 
-btw if u know about that one callout almost everything on there doesnt involve me or my 2 other friends because we're not even apart of that friendgroup sooo thx leave me out of that bye!
+btw if u know about that one callout almost everything on there doesnt involve me or my 2 other friends because we're not even apart of that friendgroup ive known them for like 4 weeks and im only a little buddy-buddy with them i just sit at the area sometimes sooo thx leave me out of that bye!
